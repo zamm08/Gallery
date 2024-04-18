@@ -1,0 +1,1 @@
+skip aja gada apa apa
